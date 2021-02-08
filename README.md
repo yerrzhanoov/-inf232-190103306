@@ -6,3 +6,4 @@ My unik name is SDU
 I'm from Shymkent
 I'm 2 year student
 I have a lot of friends
+I have no idea
